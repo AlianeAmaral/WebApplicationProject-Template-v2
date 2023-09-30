@@ -1,4 +1,4 @@
-# Título do Projeto
+# Colecionar com significado: Um ambiente digital para valorizar a individualidade e a importância da centralização de informações dentro da comunidade colecionadora
 
 `CURSO`
 
